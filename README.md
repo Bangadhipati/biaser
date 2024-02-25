@@ -1,3 +1,4 @@
+Web page of Bengal Institute of Advanced Science, Engineering and Research (BIASER)
 🔴 JUGANTAR'S PLEDGE FOR EDUCATION TRANSFORMATION:
 Jugantar Party pledges to revolutionize Bengal's education by establishing the Bengal Institute of Advanced Science, Engineering and Research (BIASER) in every district. The vision is to make exceptional education universally accessible, fostering a brighter future for all.
 Our Vision:
